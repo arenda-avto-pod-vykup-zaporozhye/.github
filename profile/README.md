@@ -4,7 +4,7 @@
 
 ---
 
-[![Оставить заявку](https://github.com/user-attachments/assets/34819489-c7c6-422b-8704-5936be165446)](https://car-rent.paratravel.com.ua/)
+[![Оставить заявку](https://github.com/user-attachments/assets/c17547aa-058a-42c4-ad72-9ab391a65f7d)](https://car-rent.paratravel.com.ua/)
 
 ---
 
@@ -23,7 +23,7 @@
 
 ---
 
-[![Оставить заявку](https://github.com/user-attachments/assets/7bba9139-5e00-40c7-b16e-56b30047b34b)](https://car-rent.paratravel.com.ua/)
+[![Оставить заявку](https://github.com/user-attachments/assets/06f4d706-7c64-4b06-9c45-d2e446b35e9a)](https://car-rent.paratravel.com.ua/)
 
 ---
 
@@ -72,7 +72,7 @@
 
 ---
 
-[![Оставить заявку](https://github.com/user-attachments/assets/1451db35-3c0f-43cb-be41-4c6486aa5f0f)](https://car-rent.paratravel.com.ua/)
+[![Оставить заявку](https://github.com/user-attachments/assets/748c27cb-a8eb-420c-8bd7-7f926e563431)](https://car-rent.paratravel.com.ua/)
 
 ---
 
